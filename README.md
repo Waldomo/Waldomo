@@ -1,1 +1,1 @@
-Hello, I'm Waldomo, I started programming a few months ago and I want to share my work with you. Please contact me for communication :)
+Hello, my name is Ela Ayça but my nickname is Rhea. I have been coding a quality artificial intelligence about space for about a few months. Reach ceyedesqw@gmail.com for communication!
